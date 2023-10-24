@@ -1,0 +1,2 @@
+# Desarrollo-de-Herramientas-para-Investigaci-n-Marina
+La investigación sobre ballenas se ha beneficiado enormemente de la innovación tecnológica. Herramientas y métodos avanzados, desde ecolocalización hasta análisis genéticos, han cambiado el panorama de la ciencia marina. El estudio continuo de ballenas como Salt pone de manifiesto la integración efectiva de la tecnología en la biología marina.
